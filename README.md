@@ -1,3 +1,1 @@
-# Student_Info_Manger_System
-Student_Info_Manger_System
 "≤‚ ‘" 
